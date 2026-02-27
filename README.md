@@ -1,4 +1,13 @@
 ## total wip 💔
+<p align="center">
+
+</p>
+<p align="center">
+  .　　. 　 ˚　.　　　　 　　. ✦ ˚ 　　　 　　˚　.　*　　. 　˚　　. 　.  　 　　　˚　　　　　*. 　 ˚　.　　　　 　　.
+</p>
+<p align="center">
+ **hihihi !!!**
+</p>
 
 <!--
 **h0nee/h0nee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
