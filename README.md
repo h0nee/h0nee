@@ -1,6 +1,5 @@
 ## total wip 💔
-<p align="center">
-
+![header](gif.gif)
 <p align="center">
   .　　. 　 ˚　.　　　　 　　. ✦ ˚ 　　　 　　˚　.　*　　. 　˚　　. 　.  　 　　　˚　　　　　*. 　 ˚　.　　　　 　　.
 </p>
