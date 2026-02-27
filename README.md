@@ -1,7 +1,4 @@
 ## total wip 💔
-
-**.　　. 　 ˚★　.　　     　　 　　. ✦ ˚ 　　˚　.　　. 　˚　　. 　.  　 　★　　　　. 　 ˚　.　　　　　. 　. 　 　　. 　✦　˚　.　　　.   ★   　˚**
-
 ![header](https://github.com/h0nee/h0nee/blob/a5b01704f826bbec78d1079f9da05c625207aaeb/the%20gif%20of%20all%20time.gif)
 
 **.　　. 　 ˚　.　　　　 　　. ✦ ˚ 　　　 　　˚　.　　. 　˚　　. 　.  　 ★　　　˚　　　　　. 　 ˚　.　　　　★　. 　. 　 ✦　　. 　　˚　.　　　. 　˚**
