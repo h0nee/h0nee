@@ -1,6 +1,6 @@
 ## total wip 💔
 <p align="center">
-
+![header!!](https://github.com/h0nee/h0nee/blob/68ed6e68080f7a7d27ef115c7adf6a3e8a0046aa/lv_0_20260227014751.gif)
 </p>
 <p align="center">
   .　　. 　 ˚　.　　　　 　　. ✦ ˚ 　　　 　　˚　.　*　　. 　˚　　. 　.  　 　　　˚　　　　　*. 　 ˚　.　　　　 　　.
