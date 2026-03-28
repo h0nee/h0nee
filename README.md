@@ -5,7 +5,7 @@ i can't code for shit and am too lazy to learn so this is all gonna be off cente
 **.　　. 　 ˚　.　　　　 　　. ✦ ˚ 　　　 　　˚　.　　. 　˚　　. 　.  　 ★　　　˚　　　　　. 　 ˚　.　　　　★　. 　. 　 ✦　　. 　　˚　.　　　. 　˚**
 
 
-### My Main Fandoms !!! [^1]
+### My Main Fandoms !!! [^1] Find me in 18+ or Safe !
 
 [^1]: (all my ponies are C+H! idgaf <3)
 
